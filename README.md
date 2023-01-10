@@ -5,6 +5,5 @@
 - Twitter: `作ってない(今度作る)`
 - Website: `ドメインの金くれ`
 
-# Agamesさん
-はよ電気通信事業者届に関してアナウンスしてくださいよwww<br>
-知らない人へ: https://twitter.com/Act_Celery/status/1609459436392951808
+# Agamesさん(2023/01/10 Updated)
+電気通信事業者届やっと出しましたかぁ^^
